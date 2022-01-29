@@ -2,8 +2,8 @@
 
 - For My Beloved
 - Para Mim Mesmo (em processo)
-- Poemas Católicos (add)
-- Poemas para o Mundo (add)
+- Poemas Católicos (em breve)
+- Poemas para o Mundo (em breve)
 
 
 
